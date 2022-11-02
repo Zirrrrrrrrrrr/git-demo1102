@@ -1,0 +1,3 @@
+ajingi
+niagnaigniag
+naiga
