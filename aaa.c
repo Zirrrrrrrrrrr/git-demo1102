@@ -1,4 +1,1 @@
-ajingi
-niagnaigniag
-naiga
-ddd
+ss
